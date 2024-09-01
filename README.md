@@ -16,4 +16,6 @@
 
 Apaixonado por tecnologia ❤️💻🤖
 
+### Contato
 
+- Gmail - alessandrovieiraa77@gmai.com
