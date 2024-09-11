@@ -19,3 +19,4 @@ Apaixonado por tecnologia ❤️💻🤖
 ### Contato
 
 - Gmail - alessandrovieiraa77@gmail.com
+- [Linkedin](https://www.linkedin.com/in/alessandro-vieira02/)
